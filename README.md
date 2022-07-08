@@ -1,0 +1,1 @@
+# StudyDemon-PrivacyPolicy-jp
